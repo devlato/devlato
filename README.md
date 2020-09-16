@@ -2,4 +2,4 @@
 
 ಠ_ಠ ༼ つ ◕_◕ ༽つ ಠ_ಠ
 
-[https://devlato.com/](devlato.com)
+[devlato.com](https://devlato.com/)
